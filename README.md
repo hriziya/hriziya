@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hey👋 - I am Hitesh. I will soon update more info here.. 
 
 <!--
 **hriziya/hriziya** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
